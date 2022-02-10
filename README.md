@@ -1,2 +1,2 @@
 # TIRUVANANTAPURAM CATHEDRAL
-VIS VITALIS GODS, GODDESSES, ETC ET AL. VISHNU &amp; LAKSHMI. THEOMUSHROOMS MYCELIUMS WITH MULTIPLE VISIBLE BODIES. ANANTASHESHA NETWORK &amp; FOUNDATION. Radio Lighthouses apps &amp; Lightning insects apps. Oceans etc et al of pluralistic freedom. Coral coastlines.
+VIS VITALIS GODS, GODDESSES, ETC ET AL. GREEN TARA, VISHNU & LAKSHMI. THEOMUSHROOMS MYCELIUMS WITH MULTIPLE VISIBLE BODIES. ANANTASHESHA NETWORK & FOUNDATION. Radio Lighthouses apps & Lightning insects apps. Oceans etc et al of pluralistic freedom. Coral coastlines.
